@@ -1,2 +1,2 @@
 # kombi-arizasi
-Kombi Aızası
+Kombi Aızası 0536 574 74 12 İzmir
